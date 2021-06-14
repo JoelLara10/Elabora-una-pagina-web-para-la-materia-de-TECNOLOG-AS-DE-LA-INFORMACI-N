@@ -1,1 +1,1 @@
-# Elabora-una-pagina-web-para-la-materia-de-TECNOLOG-AS-DE-LA-INFORMACI-N
+# Elabora-una-pagina-web-para-la-materia-de-TECNOLOG-AS-DE-LA-INFORMACION
